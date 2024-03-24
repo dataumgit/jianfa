@@ -4,3 +4,5 @@ linghuchong: 这是什么东西啊2222222
 
 yuebuquan： 问问别人
 
+  东方不败： 必先自宫
+
